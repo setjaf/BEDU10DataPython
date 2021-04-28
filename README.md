@@ -6,4 +6,4 @@
 - Emilio Linarez Meneses
 - Set Jafet Renedo Ortega
 
-
+El video se encuentra disponible en el [enlace](https://drive.google.com/file/d/1Kqm5gektRWcAyQ57dWtSzNmbTMhTazAW/view?usp=drivesdk)
